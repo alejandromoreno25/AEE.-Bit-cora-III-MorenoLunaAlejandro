@@ -1,2 +1,0 @@
-# AEE.BitacoraIII MorenoLunaAlejandro
-
